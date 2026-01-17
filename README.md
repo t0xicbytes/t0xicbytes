@@ -3,5 +3,7 @@
 <p align="center"> 17 yrs old 𓇼 aroace + demigirl ; nuclearbyte yummeshipper (❀❛ ֊ ❛„)♡
 <p align="center"> ︶︶︶ ⊹ ︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶
 <p align="center"> C+H　&　W2I　　;　　Do Not Copy or Take Inspo of my skins　.  (¬`‸´¬)
-<p align="center"> FANDOMS　;　MM12 , Roblox's admins & Devs , WAAP , MC jokes ARGS , Regretevator .
+<p align="center"> FANDOMS　;　MM12 , Roblox's admins & Devs , WAAP , MC jokes ARGS , CRK , Regretevator , EW .
 <p align="center"> DNI　;　Proshippers // Darkshippers // Compshippers , Weirdos , Basic dni (racist, transphobics, homophobics) , antis .
+<p align="center">  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ 
+<IMG SRC="https://64.media.tumblr.com/f5ecfeae0d6eed0961544636c8c11925/a8691fa90bb0ed7e-d1/s500x750/32480851d653bd47c15167fb0cb23581507a34f3.webp">
