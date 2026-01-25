@@ -2,7 +2,7 @@
 <IMG SRC="https://pbs.twimg.com/media/G-02vyKW4AA8b6Z?format=png&name=900x900">
 <p align="center"> 17 yrs old 𓇼 aroace + demigirl ; nuclearbyte yummeshipper , multishipper (❀❛ ֊ ❛„)♡
 <p align="center"> ︶︶︶ ⊹ ︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶
-<p align="center"> C+H FREELY　&　W2I　　;　　Do Not Copy or Take Inspo of my skins　.  (¬`‸´¬)　most of the time AFK // offtab　.
+<p align="center"> C+H FREELY　+　TC　,　NC // NV　&　W2I　　;　　Do Not Copy or Take Inspo of my skins　.  (¬`‸´¬)　most of the time AFK // offtab　.
 <p align="center"> I SHIP　;　calebnate , calebyte , vilicalebyte , vilibyte , nucleartree , polymadness , jwister , vilinate , viliprepon , ellertapped , kirbycaleb , kirbytrent , pizzapunch , c00lpizza/pizzatakeover , c00l7n7 (NOT 4saken) , anything that isn't problematic in general
 <p align="center"> INT　;　any mm12 fans , non-4saken hackers/characters in general .
 <p align="center"> FANDOMS　;　MM12 , Roblox's Devs , WAAP , MC jokes ARGS , CRK , Regretevator , EW .
