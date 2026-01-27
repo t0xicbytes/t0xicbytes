@@ -3,10 +3,10 @@
 <p align="center"> 17 yrs old 𓇼 aroace + demigirl ; nuclearbyte yummeshipper , multishipper (❀❛ ֊ ❛„)♡
 <p align="center"> ︶︶︶ ⊹ ︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶
 <p align="center"> C+H FREELY　+　TC　,　NC // NV　&　W2I　　;　　Do Not Copy or Take Inspo of my skins　.  (¬`‸´¬)　most of the time AFK // offtab　.
-<p align="center"> I SHIP　;　calebnate , calebyte , vilicalebyte , vilibyte , nucleartree , polymadness , jwister , vilinate , viliprepon , ellertapped , kirbycaleb , kirbytrent , pizzapunch , c00lpizza/pizzatakeover , c00l7n7 (NOT 4saken) , anything that isn't problematic in general
+<p align="center"> I SHIP　;　calebnate , calebyte , vilicalebyte , vilibyte , nucleartree , polymadness , jwister , vilinate , viliprepon , ellertrapped , kirbycaleb , kirbygraw , pizzapunch , c00lpizza/pizzatakeover , c00l7n7 (NOT 4saken) , glorypizza , anything that isn't problematic in general ^_^
 <p align="center"> INT　;　any mm12 fans , non-4saken hackers/characters in general .
 <p align="center"> FANDOMS　;　MM12 , Roblox's Devs , WAAP , MC jokes ARGS , CRK , Regretevator , EW .
-<p align="center"> DNI　;　Proshippers // Darkshippers // Compshippers , Weirdos , if u call Itrapped by his IRL name , Basic dni (racist, transphobics, homophobics) , antis .
+<p align="center"> DNI　;　Proshippers // Darkshippers // Compshippers , Weirdos , if u call Itrapped (or any mm12 members) by his IRL name , Basic dni (racist, transphobics, homophobics) , antis .
 <p align="center"> BYF　;　I'm not into forsaken or any game that has a problematic dev team or behavior . i'm shy, so i prob just follow u on github and leave some gimmicks on your strawpage but i deeply apreciate interactions like cuddles or anything like that ^_^, i only give my disc to trusted ppl .
 <p align="center"> ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ 
 <IMG SRC="https://64.media.tumblr.com/f5ecfeae0d6eed0961544636c8c11925/a8691fa90bb0ed7e-d1/s500x750/32480851d653bd47c15167fb0cb23581507a34f3.webp">
