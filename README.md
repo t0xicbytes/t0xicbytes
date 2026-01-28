@@ -4,7 +4,7 @@
 <p align="center"> ︶︶︶ ⊹ ︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶
 <p align="center"> C+H FREELY　+　TC　,　NC // NV　&　W2I　　;　　Do Not Copy or Take Inspo of my skins　.  (¬`‸´¬)　most of the time AFK // offtab　.
 <p align="center"> I SHIP　;　calebnate , calebyte , vilicalebyte , vilibyte , nucleartree , polymadness , jwister , vilinate , viliprepon , ellertrapped , kirbycaleb , kirbygraw , pizzapunch , c00lpizza/pizzatakeover , c00l7n7 (NOT 4saken) , glorypizza , anything that isn't problematic in general ^_^
-<p align="center"> INT　;　any mm12 fans , non-4saken hackers/characters in general .
+<p align="center"> INT　;　any mm12 fans , everypony can int! except if you're in ny DNI list ofc .
 <p align="center"> FANDOMS　;　MM12 , Roblox's Devs , WAAP , MC jokes ARGS , CRK , Regretevator , EW .
 <p align="center"> DNI　;　Proshippers // Darkshippers // Compshippers , Weirdos , if u call Itrapped (or any mm12 members) by his IRL name , Basic dni (racist, transphobics, homophobics) , antis .
 <p align="center"> BYF　;　I'm not into forsaken or any game that has a problematic dev team or behavior . i'm shy, so i prob just follow u on github and leave some gimmicks on your strawpage but i deeply apreciate interactions like cuddles or anything like that ^_^, i only give my disc to trusted ppl .
