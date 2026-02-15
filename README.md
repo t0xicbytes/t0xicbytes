@@ -2,7 +2,7 @@
 <IMG SRC="https://pbs.twimg.com/media/G-02vyKW4AA8b6Z?format=png&name=900x900">
 <p align="center"> performance // toxicbytes // pwned ; 17 yrs old 𓇼 aroace + demigirl ; nuclearbyte yummeshipper , multishipper (❀❛ ֊ ❛„)♡
 <p align="center"> ︶︶︶ ⊹ ︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶
-<p align="center"> C+H FREELY　+　TC　,　NC // NV　&　W2I　　;　　Do Not Copy or Take Inspo of my skins　.  (¬`‸´¬)　most of the time AFK // offtab　.
+<p align="center"> C+H FREELY + TC　,　NC // NV　&　W2I　　;　　Do Not Copy or Take Inspo of my skins　.  (¬`‸´¬)　most of the time AFK // offtab　.
 <p align="center"> I SHIP　;　calebnate , calebyte , vilicalebyte , vilibyte , nucleartree , polymadness , jwister , vilinate , viliprepon , ellertrapped , kirbycaleb , kirbygraw , pizzapunch , c00lpizza/pizzatakeover , c00l7n7 (NOT 4saken) , glorypizza , anything that isn't problematic in general ^_^
 <p align="center"> INT　;　any mm12 fans , everypony can int! except if you're in my DNI list ofc .
 <p align="center"> FANDOMS　;　MM12 , Roblox's Devs , WAAP , MC jokes ARGS , CRK , Regretevator , EW .
